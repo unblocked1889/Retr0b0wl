@@ -3,4 +3,4 @@ Retro Bowl unbblocked is an American style football game created by New Star Gam
 
 ## Play 
 
-Click the link below to play! [https://allunblocked.us/retro-bowl/](retro bowl)
+Click the link below to play! https://allunblocked.us/retro-bowl/
